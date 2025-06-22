@@ -1,0 +1,1 @@
+# Afriqapital-Credit-Assesment-AI
